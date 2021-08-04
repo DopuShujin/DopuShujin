@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @DopuShujin
+- 👀 I’m interested in Many things
+- 🌱 I’m currently in High School(Science(non-med) stream)
